@@ -1,4 +1,4 @@
-# SHINY COLORS – Dye the sky. (2023 Ver.)
+# シャイニーカラーズ – Dye the sky. (2023 Ver.)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
